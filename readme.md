@@ -29,4 +29,4 @@
 
 - 📫 How to reach me [Mail](chaintium@gmail.com)
 
-- 📄 Know about my experiences [Forum](http://chaintium.com/)**
+- 📄 Know about my experiences [web](http://chaintium.com/)**
